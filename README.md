@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Hua Guo
+### Hi there 👋
 ![](https://cdn.cp.adobe.io/content/2/dcx/e0ad4a4e-e1ac-404f-9aa7-77a968110f2a/rendition/preview.jpg/version/3/format/jpg/dimension/width/size/1200)
 
 
